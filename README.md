@@ -2,4 +2,7 @@
 
 Sandrian Wardana - 2502016411
 
-The answers for this week's forum will be submitted before the deadline.
+Our project group:
+AVARIQ FAZLUR RAHMAN - 2502043002 
+BAYU HARTHO - 2502013731 BERNARD CHOA - 2502022414 
+SULTHAN SYUZA PRABOWO - 2502020075
